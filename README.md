@@ -1,5 +1,0 @@
-DESIGUALDADE SOCIAL 
-
-A desigualdade social e o racismo são fenômenos interligados que marcam profundamente a estrutura da sociedade brasileira e de muitos outros países.
-
-Ambos refletem uma realidade histórica de exclusão, discriminação e marginalização de certos grupos, com consequências duradouras e profundas nas oportunidades de acesso a recursos como educação, saúde, trabalho e justiça. A desigualdade social se manifesta de várias formas, seja na distribuição desigual de riquezas, seja nas condições de vida de diferentes classes sociais. Já o racismo, como uma construção social, estabelece barreiras que vão além da economia, atingindo as identidades, os direitos e o reconhecimento das pessoas, especialmente das populações negras e indígenas. Quando combinados, esses dois fenômenos criam um ciclo vicioso de opressão, perpetuando as disparidades e dificultando a construção de uma sociedade mais justa e equitativa. Compreender suas causas, suas intersecções e seus efeitos é essencial para que possamos trabalhar em busca de um futuro mais inclusivo e livre de discriminação.
